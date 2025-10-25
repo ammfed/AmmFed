@@ -1,4 +1,4 @@
-SWE Student | QA Tester | Tech Support & Training
+SWE Student @ 42AD | QA Tester | Tech Support & Training
 
 Simplifying Systems for Teams and Clients | Bridging Tech and Businesses
 
