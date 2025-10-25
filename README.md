@@ -1,3 +1,4 @@
-CodeCombat is 🔥 btw (join me [@AmmFed](https://codecombat.com/user/ammfed))
+SWE Student | QA Tester | Tech Support & Training | Simplifying Systems for Teams and Clients
+Bridging Tech and Businesses | Let's Connect!
 
-*<sup>Dec, 2023</sup> Learning C++, JS, Python, HTML, and CSS.*
+*<sup>Jul, 2025</sup> Learning C/C++*
